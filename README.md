@@ -1,2 +1,0 @@
-# xtranano-chinhhang
-xtranano-chinhhang
